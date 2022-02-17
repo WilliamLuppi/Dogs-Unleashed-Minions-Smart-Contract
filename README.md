@@ -13,5 +13,3 @@ To find out more please visit:
 [🐦 Twitter](https://twitter.com/williamlnfts)
 
 [ℹ️ Website](https://dogsunleashednft.com)
-
-# HashLips Art Engine 🔥
