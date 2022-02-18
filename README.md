@@ -13,3 +13,5 @@ To find out more please visit:
 [🐦 Twitter](https://twitter.com/williamlnfts)
 
 [ℹ️ Website](https://dogsunleashednft.com)
+
+# This is Dogs Unleashed Official Smart Contract!!!
